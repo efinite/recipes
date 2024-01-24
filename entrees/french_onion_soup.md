@@ -13,7 +13,7 @@ Incredibly flavorful french onion soup with homemade beef stock.
 -   Beef stew meat, 2 lbs
 -   Beef bones, 1 lb
 -   Celery, chopped, 1 bunch
--   Carrots, chopped, 3 count
+-   Carrots, large, chopped, 5 count
 -   Yellow onion, medium/large, chopped, 1 count
 -   Coriander seeds, 1 Tbsp
 -   Parsley, chopped, 3+ Tbsp
