@@ -20,7 +20,7 @@ Recipe can be scaled as required.
 
 ### Dashi broth
 
--   1 1/4 cups dashi stock (1.3 tsp dry / 2.5 cups water)
+-   1 1/4 cups dashi stock (1.3 tsp dry Bonito soup stock/ 2.5 cups water)
 -   2 Tbsp mirin
 -   1/3 cup low-sodium soy sauce
 -   1 Tbsp sugar
